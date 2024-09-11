@@ -21,6 +21,7 @@ Before the debate, it was assumed that Trump would resort to personal attacks on
 **Related video: Top 5 moments during Trump-Harris presidential debate: 'I'm talking now'**
 
 [![Watch the video](https://github.com/user-attachments/assets/dcdbfe6a-f847-450a-9260-7df5cfb1a95e)](https://www.youtube.com/watch?v=2cpddV6m1j4&t=1s)
+click me :)
 
 One of the most striking examples was when Harris jabbed Trump with the fact that "people started leaving his rallies early out of exhaustion and boredom". This is a sore subject for Trump - he always spends a disproportionate amount of time talking about how big his rallies are, how much bigger and brighter they are than his competitors, etc. And Trump lost his temper, continuing to argue that he has "biggest rallies in the history of politics" even as the discussion moved on to other topics.
 
